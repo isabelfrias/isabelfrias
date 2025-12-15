@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a Final Year Computer Engeneering Student
+Aspiring Engineer driven by curiosity and a commitment to continuous improvement. While I possess a broad academic background, my primary focus is on learning and adapting to new challenges. I am open to opportunities across different sectors that allow me to apply my engineering mindset and grow as a professional.
 
 
 ## 🌐 Socials:
